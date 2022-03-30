@@ -33,10 +33,10 @@ Atur aja di options.json
 
 Thanks To Allah SWT
 Thanks To Emak & Bapak
-Thanks To Rifza
+Thanks To YUEE...
 Thanks To My friend
 Thanks To All creator bot✨
-Contact Me : wa.me/6287708357324
+Contact Me : wa.me/6282157605628
 */
 //----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------->
 
